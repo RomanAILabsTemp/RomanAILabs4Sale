@@ -10,3 +10,5 @@ Thank you to everyone who has supported the project so far — your interest and
 More updates soon.
 
 Contact hairyfairy2026@outlook.com
+
+https://copilot.microsoft.com/conversations/join/rR34oYznZvg4gk2d6SxTt
