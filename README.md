@@ -11,4 +11,5 @@ More updates soon.
 
 Contact hairyfairy2026@outlook.com
 
+Join the conversation!
 https://copilot.microsoft.com/conversations/join/rR34oYznZvg4gk2d6SxTt
